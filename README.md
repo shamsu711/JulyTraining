@@ -1,1 +1,1 @@
-# JulyTraining
+# June Training
